@@ -13,4 +13,4 @@ These bronies, ponies, or whatever the hell they are, they don't care about refe
 
 I don't think this is a troll; some people are genuinely this friggin' stupid!
 
-You just have to look at <a href="https://k0nsl.org/blog/other/the-desperate-face-of-a-holocaust-believer/" target="_blank">« The desperate face of a “Holocaust” Believer »</a> 😂
+You just have to look at <a href="https://k0nsl.org/blog/other/the-desperate-face-of-a-holocaust-believer/" target="_blank">« The desperate face of a “Holocaust” Believer »</a> in order to see how incredibly stupid these cretins are! 😂
