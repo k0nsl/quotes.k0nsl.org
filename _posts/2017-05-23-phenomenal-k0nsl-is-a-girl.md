@@ -10,3 +10,5 @@ permalink: >
 published: true
 ---
 I thought this was rather humorous so I decided put it here. <img class='wpml_ico' alt='' src='https://quotes.k0nsl.org/wp-content/plugins/wp-monalisa/icons/lol.gif' />
+
+The uncropped screenshot can be viewed <a href="https://quotes.k0nsl.org/wp-content/uploads/2017/05/is-k0nsl-a-girl01.jpg" target="_blank">here</a>.
