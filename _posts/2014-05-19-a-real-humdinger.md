@@ -18,9 +18,9 @@ Earlier today I was involved in some protracted discussions with 'holocaust' bel
 &nbsp;
 
 Whereas I responded:
-<blockquote>Indeed, it sure is funny how somebody can be so deep in their bullshit. A real humdinger.
-Most ‘holocaust’ believers are incapable of arguing; they resort to violence or other foul attacks.
-But when they do try to argue, this is how it can unfold:
+<blockquote>Indeed, it sure is funny how somebody can be so deep in their bull shit. A real humdinger.
+Most ‘holocaust’ believers are incapable of arguing; they resort to violence or other foul attacks -- it just shows how devoid their so-called 'arguments' are.
+However, when they do try to argue, this is how it can typically unfold:
 <a href="https://k0nsl.org/blog/other/the-desperate-face-of-a-holocaust-believer/" target="_blank">https://k0nsl.org/blog/other/the-desperate-face-of-a-holocaust-believer/</a></blockquote>
 &nbsp;
 
@@ -29,18 +29,18 @@ He responds back with this:
 &nbsp;
 
 I end the discussion with this comment:
-<blockquote>No, of course it didn’t trigger any such things for me. I am just stating (perhaps for you) inconvenient fact; that ‘holocaust’ believers very often engage in violent attacks against their opponents — fierce assaults, arson attacks, acid attacks (particularly one case where they threw acid in the face of an elderly man. I think he was close to eighty years or somesuch. I cannot be bothered to look it up right now). Also bomb attacks (e.g François Duprat who died due to a car bomb and his wife had to amputate both of her legs). And on &amp; on, the list of ‘holocaust’ believer violence is a long, sordid one. I assume they use violence because they have no arguments.
-It is also, as you probably know, illegal in some fourteen countries to question the extermination thesis. So you have everything on your side — even the judicial system. But in a traditional, even-handed debate the ‘holocaust’ believers will always <strong>fail</strong> because he does not have truth on his side. That is what matters.</blockquote>
+<blockquote>No, of course it didn’t trigger any such things for me. I am just stating a (perhaps for you) inconvenient fact; that ‘holocaust’ believers very often engage in violent attacks against their opponents — fierce assaults, arson attacks, acid attacks (I particularly remember one case where they threw acid in the face of an elderly man. I think he was close to eighty years old or somesuch. I cannot be bothered to look it up right now). Also bomb attacks (e.g François Duprat who died due to a car bomb and his wife had to amputate both of her legs). And on &amp; on, the list of ‘holocaust’ believer violence is a long, sordid one. I assume they use violence because they have no arguments.
+It is also, as you probably know, illegal in some fourteen countries to question the extermination thesis. So you have everything on your side — even the judicial system. But in a traditional, even-handed debate the ‘holocaust’ believers will always <strong>fail</strong> because he does not have truth on his side. That is what matters and that is precisely what the ordinary logical-thinking human being will see when they stumble onto these attempts at debates.</blockquote>
 &nbsp;
 
-Well...except it never really ended with my comment. The obligatory so-called "Mother Word" of the 'holocaust' believer was let loose along with one other word -- a cocktail of buzzwords to deter:
+Well...except it never really ended with my comment. The obligatory so-called "Mother Word" of the 'holocaust' believer was induced and let loose along with one other word -- a cocktail of buzzwords to deter:
 
 &nbsp;
 <blockquote>you're an anti-semite and probably white supremacist.</blockquote>
 &nbsp;
 
 ...or so they thought! I am not a person easily deterred. I reply back:
-<blockquote>The word ‘antisemite’ is a particularly useless buzzword as it has come to mean anybody and anything, and even used in situations where it is not kosher to use it.</blockquote>
+<blockquote>The word ‘antisemite’ is a particularly useless buzzword these days as it has come to mean anybody and anything, and even used in situations where it is not even kosher to use it.</blockquote>
 &nbsp;
 
 Now the 'holocaust' believers are somewhat quiet.
